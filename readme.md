@@ -6,7 +6,7 @@
 - 📫 How to reach me **nikita**
 
 Connect with me: </br>
-<a href="https://t.me/N𝔦𝖐iᵗⱥ"> </a>
+<a href="https://t.me/Nikita" target="blank">My telegram </a>
 <p align="left">
 </p>
 

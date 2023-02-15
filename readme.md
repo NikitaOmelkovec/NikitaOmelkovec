@@ -5,7 +5,8 @@
 
 - 📫 How to reach me **nikita**
 
-<h3 align="left">Connect with me:</h3>
+Connect with me: </br>
+<a href="https://t.me/N𝔦𝖐iᵗⱥ"> </a>
 <p align="left">
 </p>
 
